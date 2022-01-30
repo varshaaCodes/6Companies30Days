@@ -34,3 +34,9 @@ Day 21-25:
 
 Company Name : Intuit
 
+_______________________________
+
+Day 26-30:
+
+Company name: Walmart
+
